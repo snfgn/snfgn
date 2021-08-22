@@ -1,4 +1,4 @@
-- I’m @snfgn
+- I’m Sean Fagan
 - Current Microsoft Recruiter
 - Past Organic Farmer, Sustainability Consultant, and Nonprofit Manager
 - Looking for Sustainability projects remote or located in the Pacific Northwest region
